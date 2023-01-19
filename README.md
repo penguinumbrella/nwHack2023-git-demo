@@ -3,8 +3,3 @@
 
 #Hi, my name is Gina? **:)**
 
-#hskjfskfehjkfhsjfkhskfsfhks
-
-
-#aldladkadlakdlwaklcjkfheskjfhkjsvs
-feskjfhfks
